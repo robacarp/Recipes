@@ -2,10 +2,10 @@
 
 ###Ingredients
 
-- 1.5 cups warm water
-- 2 1/4 tsp yeast (one packet)
-- 2 1/4 tsp Kosher salt
-- 3 1/4 cups unbleached flour (bread flour works best here)
+- 1 ½ cups warm water
+- 2 ¼ tsp yeast (one packet)
+- 2 ¼ tsp Kosher salt
+- 3 ¼ cups unbleached flour (bread flour works best here)
 
 ###Prep
 
