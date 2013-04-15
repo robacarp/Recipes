@@ -44,3 +44,5 @@
 From the original recipe: 
 >Pretzels are best eaten the day they're prepared. Don't store pretzels tightly wrapped or the salt will evaporate. Leftovers can be refreshed the next day by placing them in a toaster oven until warm or in microwave for about 15 seconds.
 >If you prepared more of the baking soda than used, you can simply store it in an airtight container until next time.
+
+Original Recipe credit Brad Lappin.
