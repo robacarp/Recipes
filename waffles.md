@@ -1,16 +1,16 @@
-1 3/4 cups all-purpose flour
-1 3/4 teaspoons baking powder
-1/8 teaspoon fine salt
-1/8 teaspoon ground nutmeg
-1 1/2 cups milk, at room temperature
-2 large eggs, at room temperature, separated
-1/2 teaspoon vanilla extract
-1/4 cup unsalted butter, melted, plus more for brushing the iron
-1 large egg white, at room temperature
-1/4 cup sugar
+- 1 3/4 cups all-purpose flour
+- 1 3/4 teaspoons baking powder
+- 1/8 teaspoon fine salt
+- 1/8 teaspoon ground nutmeg
+- 1 1/2 cups milk, at room temperature
+- 2 large eggs, at room temperature, separated
+- 1/2 teaspoon vanilla extract
+- 1/4 cup unsalted butter, melted, plus more for brushing the iron
+- 1 large egg white, at room temperature
+- 1/4 cup sugar
 
 
- Preheat a waffle iron to medium-high.
+Preheat a waffle iron to medium-high.
 
 In a large bowl, whisk together the flour, baking powder, salt, and nutmeg.
 
