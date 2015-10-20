@@ -14,11 +14,11 @@ Place the chocolate in a medium bowl. Sift the cocoa powder over the chocolate. 
 Brown Sugar Frosting
 http://www.foodnetwork.com/recipes/paula-deen/frosting-recipe/index.html
 
-1/2 C - Butter (unsalted) 1 stick.
-1 C   - Dark brown sugar, packed
-1/3 C - Heavy cream
-1 Box - Confectioners Sugar (16Oz)
-1 tsp - Vanilla
+- 1/2 C - Butter (unsalted) 1 stick.
+- 1 C   - Dark brown sugar, packed
+- 1/3 C - Heavy cream
+- 1 Box - Confectioners Sugar (16Oz)
+- 1 tsp - Vanilla
 
 Melt butter in saucepan over medium heat.
 Stir in brown sugar and cream. 
