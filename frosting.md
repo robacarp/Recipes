@@ -1,10 +1,11 @@
-Milk Chocolate Frosting
+### Milk Chocolate Frosting
+
 http://www.foodnetwork.com/recipes/bobby-flay/chocolate-hazelnut-brownies-with-milk-chocolate-frosting-recipe/index.html
 
-5 Oz   - Lindt milk chocolate, finely chopped
-1 Tbsp - unsweetened alxalized cocoa powder
-1/3 C  - heavy cream
-1 Tbsp - Italian hazlenut liqueur, such as Frangelico
+- 5 Oz   - Lindt milk chocolate, finely chopped
+- 1 Tbsp - unsweetened alxalized cocoa powder
+- 1/3 C  - heavy cream
+- 1 Tbsp - Italian hazlenut liqueur, such as Frangelico
 
 Place the chocolate in a medium bowl. Sift the cocoa powder over the chocolate. In a small saucepan bring the cream to a boil. Pour the hot cream over the chocolate and gently whisk until smooth. Stir in the hazelnut liqueur, and allow the mixture to cool at room temperature until it is spreadable, about 1 hour. Using a metal spatula, spread the frosting over the top of the brownies.
 
