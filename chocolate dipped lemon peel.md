@@ -1,6 +1,6 @@
-8 Lemons  (Sub any citrus fruit)
-Lots of Sugar
-Chocolate
+- 8 Lemons  (Sub any citrus fruit)
+- Lots of Sugar
+- Chocolate
 
 Use a peeler to remove the peel from your fruit, and then trim with a knife.
 It is best when they are thin and long strips.
@@ -16,5 +16,3 @@ crispiness or chewyness.
 Melt dipping chocolate (70% dark works well) and dip.  Put back on parchment/wax and cool.  Refrigerate/freeze because you're probably in a hurry. :-)
 
 Source: http://www.evilmadscientist.com/article.php/chocolemon
-
-
