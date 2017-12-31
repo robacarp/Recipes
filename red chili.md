@@ -1,0 +1,5 @@
+- 2 cans fire roasted diced tomatoes
+- 1 can black beans
+- 1 can sweet white corn
+- 1 12oz can tomato paste
+- 1 lb ground beef
