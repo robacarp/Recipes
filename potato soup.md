@@ -1,13 +1,26 @@
 ## Potato Soup
 
-Usually use 2 medium potatoes per serving: 
-  - cook until soft and then mash lumpy in the same pan with what ever water is left.  
-  - If there is a lot of water drain some off before you mash them.  
-  - After you mash them add enough milk to make it the soup consistancy you want. 
-  - Add some butter, salt and pepper and heat through.
-  - Just before you serve the soup, add the shredded swiss cheese and you are done.  
-  - If you want you can add some onion to the potatoes when they are cooking so it will be cooked when the potatoes are done.
+Ingredients:
 
-You can also cook the taters in chicken broth and you could put the swiss cheese on the side and let people add it or not to their bowl of soup.
+- Potatoes - 2 medium per serving
+- Shredded Swiss Cheese
+- Butter, Salt, Pepper to taste
+- Milk
+- (optional) Chicken Broth
+- (optional) Diced Onion
+
+Directions:
+  - Peel and cook potatoes until soft, covering with water.
+  - Remove excess water and then mash lumpy.  
+  - Add milk to make it a soup consistancy. 
+  - Add some butter, salt, and pepper to taste.
+  
+Serving:
+  - Just before you serve the soup, add the shredded swiss cheese and you are done.
+  - Put the cheese on the table and let people add it.
+  
+Modifications:
+  - Add some onion to the potatoes during cooking.
+  - Cook the potatoes in chicken broth.
 
 Credit: Mom
