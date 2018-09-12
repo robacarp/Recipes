@@ -1,4 +1,6 @@
-Chicken soup stock:
+## Chicken soup stock:
+
+Ingredients:
 
 1 Rotisserie Chicken
 1 Medium Yellow Onion
@@ -6,6 +8,8 @@ Chicken soup stock:
 Celery, leafy stalky part
 2-3 Parsley
 Water
+
+Directions:
 
 - Pull skin and meat off of chicken bones.  Separate meat from skin and bones.  Cover the meat to keep it moist.
 
