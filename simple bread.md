@@ -1,20 +1,19 @@
-##As yet personally untested.
 
-###Ingredients
+### Ingredients
 
 - 1 ½ cups warm water
 - 2 ¼ tsp yeast (one packet)
 - 2 ¼ tsp Kosher salt
 - 3 ¼ cups unbleached flour (bread flour works best here)
 
-###Prep
+### Prep
 
 1. Mix the water, salt and yeast
 2. Add in the flour and mix well, but not too vigorously. You should end up with a pretty wet dough.
 4. Transfer the dough to a container and let it rise for two hours, or until it’s flattens off on top.
 5. Store in the refrigerator until ready for use.
 
-###Baking
+### Baking
 
 1. Spread cornmeal on a wooden peel.
 2. Lightly dust the top of the dough with flour and rip off about half.
