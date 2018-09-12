@@ -1,6 +1,4 @@
-Rob,
-Sorry I diddn't get back to you yesterday....
-Pretty much gave you the recipe yesterday.
+## Potato Soup
 
 Usually use 2 medium potatoes per serving: 
   - cook until soft and then mash lumpy in the same pan with what ever water is left.  
@@ -12,6 +10,4 @@ Usually use 2 medium potatoes per serving:
 
 You can also cook the taters in chicken broth and you could put the swiss cheese on the side and let people add it or not to their bowl of soup.
 
-I really don't have a written recipe (that I know of) so hope this turns out for you!
-
-Love, Mom
+Credit: Mom
