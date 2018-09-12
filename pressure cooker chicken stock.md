@@ -2,12 +2,12 @@
 
 Ingredients:
 
-1 Rotisserie Chicken
-1 Medium Yellow Onion
-2 Carrots
-Celery, leafy stalky part
-2-3 Parsley
-Water
+- 1 Rotisserie Chicken
+- 1 Medium Yellow Onion
+- 2 Carrots
+- Celery, leafy stalky part
+- 2-3 Parsley
+- Water
 
 Directions:
 
